@@ -21,3 +21,4 @@ city of war
 world war 3
 pray for me
 i want peace
+i am normal
